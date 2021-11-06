@@ -3,9 +3,10 @@
 trace('hol');<br>
 im gamerbross
 
-![a](https://cdn.discordapp.com/attachments/893173381489377280/906255789725995078/m_abuelo_decia.mp4)
-
 # ñ
 
 im spanishhh<br>
 holaaaa
+
+# ete sech
+https://user-images.githubusercontent.com/55158797/140618833-24d0d1d1-93a0-435d-8336-3e2f33c2bf2f.mp4
